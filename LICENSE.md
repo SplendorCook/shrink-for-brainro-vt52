@@ -1,4 +1,4 @@
-#  
+#  Experience shrink for brainrots like never before with shrink for brainrots secure Scripts, the #1 Script. Includes silent aim and no clip for
 
 
 
